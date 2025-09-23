@@ -1,5 +1,5 @@
 ---
-title: I promised myself I wouldn't spend an hour coming up with a title for this! I hope it's funny! *cries silently* (/j I'm fine)
+title: The Grecian army inside requests that you do not open the horse.
 ---
 
 <details>
